@@ -1,4 +1,4 @@
-I’m currently working on Ericsson as a Software Developer
+I’m currently working at Ericsson as a Software Developer
 
 
 ## 🌐 Socials:
