@@ -1,4 +1,4 @@
-I’m currently working at PeP as a Software Developer
+
 
 
 ## 🌐 Socials:
